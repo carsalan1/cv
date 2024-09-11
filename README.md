@@ -50,7 +50,7 @@ California
 
 ROP Curso: Computer Repair, Computer Network
 
-Conalep
+Colegio Nacional de Educación Profesional Técnica
 Cuautitlán Izcalli, Méx.
 
 Título: Profesional Técnico en Informática
